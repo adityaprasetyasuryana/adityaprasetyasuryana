@@ -14,5 +14,5 @@
 - Project B – aplikasi mobile
 
 ## 📫 Contact
-- Email: kamu@email.com
+- Email: adityapras1997@gmail.com
 - LinkedIn: ...
